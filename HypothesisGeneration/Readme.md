@@ -8,7 +8,7 @@ This group included:
 - Héctor Herrera-Orozco
 - Asia Hightower (highto29@msu.edu)
 - Wendy Leuenberger (leuenbe9@msu.edu)
-- Eddy Mendoza-Galindo
+- Eddy Mendoza-Galindo (eddyjmeg@gmail.com)
 
 __________________________________________________________________________________________________________________________________________
 
